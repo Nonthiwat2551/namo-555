@@ -1,1 +1,1 @@
-i thnk friend is grilfriend it dream name buipu
+i thnk friend is grilfriend it dream name B u 
