@@ -1,2 +1,1 @@
-# namo-555
-i am happy sometime wirte code program
+i thnk friend is grilfriend it dream name buipu
